@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Yuvan Kumar
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning fitness & Calisthenics 
-- 💞️ I’m looking to collaborate on Technologies 
+- 💞️ I’m looking to collaborate with Technologies 
 - 📫 I'm Busy
 - 😄 Pronouns: Tamil & English 
 - ⚡ Quote: Talent without Hardwork is Nothing
